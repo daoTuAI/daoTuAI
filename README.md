@@ -1,4 +1,4 @@
-### Hi, I'm Tú <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> -  [TÚ AI]= Data Scienced  🌻  
+### Hi, I'm Tú <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> -  [TÚ AI]= Data Science  🌻  
 
 
 - 🔭 Passion in something ... (secret😊)
